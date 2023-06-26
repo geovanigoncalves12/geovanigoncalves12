@@ -2,9 +2,6 @@
 - 🥇 Eu estou estudando a alura...
 - Sou torcedor do corinthans 🖤 🖤
 - Meu insta: @geovani_g12
-- 📫 How to reach me ...
+- Jogador de futebol/futsal ⚽⚽
+- Vai corinthansss
 
-<!---
-geovanigoncalves12/geovanigoncalves12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
